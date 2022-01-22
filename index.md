@@ -1,2 +1,1 @@
-## Squirrels
 They are coming.
